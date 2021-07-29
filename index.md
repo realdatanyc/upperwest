@@ -1,4 +1,12 @@
-## Upper West Side Directory
+## Upper West Side 
+
+##STUDIOS
+
+151 West 82nd Street\
+[5W](https://youtu.be/s4keLu9MV9Q)
+
+
+
 
 ## Laundromats
 **La Mode Cleaners Tailors**\
