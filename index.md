@@ -2,10 +2,17 @@
 
 ##STUDIOS
 
+160 West 73rd Street\
+[9E](https://youtu.be/4rfOo5hgQic)
+
+48 West 73rd Street\
+[5A](https://youtu.be/ihzZoX4QGys)
+
 151 West 82nd Street\
 [5W](https://youtu.be/s4keLu9MV9Q)
 
-
+53 West 72nd Street\
+[2F](https://youtu.be/9zVsyNDYIW4)
 
 
 ## Laundromats
