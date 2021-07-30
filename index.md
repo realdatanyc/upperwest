@@ -1,7 +1,7 @@
 ## Upper West Side 
 
 Last updated:  Friday, July 30, 2021\
-An asterisk * denotes available for rent\
+Please note:  An asterisk * denotes available for rent
 
 ## Buildings
 
