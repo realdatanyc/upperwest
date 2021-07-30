@@ -1,6 +1,6 @@
 ## Upper West Side 
 
-##STUDIOS
+## STUDIOS
 
 160 West 73rd Street\
 [9E](https://youtu.be/4rfOo5hgQic)
