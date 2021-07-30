@@ -3,19 +3,19 @@
 ## STUDIOS
 
 160 West 73rd Street\
-[9E](https://youtu.be/4rfOo5hgQic)
+[9E*](https://youtu.be/4rfOo5hgQic)
 
 46 West 73rd Street\
-[1B*](https://youtu.be/zrtHRzhm-6I) 
+[1B](https://youtu.be/zrtHRzhm-6I) 
 
 48 West 73rd Street\
-[5A](https://youtu.be/ihzZoX4QGys)
+[5A*](https://youtu.be/ihzZoX4QGys)
 
 151 West 82nd Street\
-[5W](https://youtu.be/vABzxV6_d2Q)
+[5W*](https://youtu.be/vABzxV6_d2Q)
 
 53 West 72nd Street\
-[2F](https://youtu.be/9zVsyNDYIW4)
+[2F*](https://youtu.be/9zVsyNDYIW4)
 
 
 ## Laundromats
