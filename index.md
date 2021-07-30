@@ -15,7 +15,7 @@
 [4A](https://youtu.be/YpFxeAjRFjI), [5A*](https://youtu.be/ihzZoX4QGys)
 
 137 West 82nd Street\
-[1A](https://youtu.be/mF8SwSZEJqU)
+[1A](https://youtu.be/mF8SwSZEJqU), [2B](https://youtu.be/zcCWEbyDuTk)
 
 151 West 82nd Street\
 [5W*](https://youtu.be/vABzxV6_d2Q), [6W](https://youtu.be/wwHZfEBJTdU), [7E](https://youtu.be/lwz7vq_Jf1s)
