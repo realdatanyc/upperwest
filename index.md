@@ -6,7 +6,7 @@
 [9E*](https://youtu.be/4rfOo5hgQic)
 
 46 West 73rd Street\
-[1B](https://youtu.be/zrtHRzhm-6I) 
+[1B](https://youtu.be/zrtHRzhm-6I) , [3B](https://youtu.be/sN-lAb9pJhs)
 
 48 West 73rd Street\
 [5A*](https://youtu.be/ihzZoX4QGys)
