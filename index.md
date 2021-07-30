@@ -32,6 +32,9 @@
 510 West End Avenue\
 [1](https://youtu.be/CJC9ya6IJHI)
 
+1734 Amsterdam\
+[5N](https://youtu.be/q7QJUFcjKYE)
+
 214 West 104th\
 [2B](https://youtu.be/Gf1f8lmFNbc)
 
@@ -40,6 +43,7 @@
 
 208 West 104th\
 [3B](https://youtu.be/BDbqi6thijs)
+
 
 
 ## Laundromats
