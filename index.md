@@ -3,7 +3,7 @@
 ## Buildings
 
 160 West 73rd Street\
-[9E*](https://youtu.be/4rfOo5hgQic)
+[3K](https://youtu.be/-wFTAiYHR7M), [9E*](https://youtu.be/4rfOo5hgQic)
 
 46 West 73rd Street\
 [1B](https://youtu.be/zrtHRzhm-6I) , [3B](https://youtu.be/sN-lAb9pJhs)
