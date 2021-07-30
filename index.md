@@ -5,6 +5,9 @@
 160 West 73rd Street\
 [9E](https://youtu.be/4rfOo5hgQic)
 
+46 West 73rd Street\
+[1B*](https://youtu.be/zrtHRzhm-6I) 
+
 48 West 73rd Street\
 [5A](https://youtu.be/ihzZoX4QGys)
 
