@@ -9,7 +9,7 @@
 [1B](https://youtu.be/zrtHRzhm-6I) , [3B](https://youtu.be/sN-lAb9pJhs)
 
 48 West 73rd Street\
-[5A*](https://youtu.be/ihzZoX4QGys)
+[4A](https://youtu.be/YpFxeAjRFjI), [5A*](https://youtu.be/ihzZoX4QGys)
 
 151 West 82nd Street\
 [5W*](https://youtu.be/vABzxV6_d2Q)
