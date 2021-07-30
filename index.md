@@ -12,7 +12,7 @@
 [4A](https://youtu.be/YpFxeAjRFjI), [5A*](https://youtu.be/ihzZoX4QGys)
 
 151 West 82nd Street\
-[5W*](https://youtu.be/vABzxV6_d2Q)
+[5W*](https://youtu.be/vABzxV6_d2Q), [6W](https://youtu.be/wwHZfEBJTdU)
 
 53 West 72nd Street\
 [2F*](https://youtu.be/9zVsyNDYIW4),[7C](https://youtu.be/yXIN8Wd2NgE)
