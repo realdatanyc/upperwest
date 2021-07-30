@@ -3,7 +3,7 @@
 ## Buildings
 
 160 West 73rd Street\
-[1C](https://youtu.be/qEVfoPhXmpk), [1J](https://youtu.be/mk6d2QIq0qM), [3K](https://youtu.be/-wFTAiYHR7M),[4J](https://youtu.be/MKkEWFJk8ig) , [9E*](https://youtu.be/4rfOo5hgQic)
+[1C](https://youtu.be/qEVfoPhXmpk), [1J](https://youtu.be/mk6d2QIq0qM), [3K](https://youtu.be/-wFTAiYHR7M),[4J](https://youtu.be/MKkEWFJk8ig), [9E*](https://youtu.be/4rfOo5hgQic)
 
 46 West 73rd Street\
 [1B](https://youtu.be/zrtHRzhm-6I) , [3B](https://youtu.be/sN-lAb9pJhs)
