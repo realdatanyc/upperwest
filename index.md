@@ -1,7 +1,7 @@
 ## Upper West Side 
 
 ## Buildings
-An asterisk * denotes available for rent as of Friday, 7/30/2021
+An asterisk * denotes available for rent
 
 53 West 72nd Street\
 [2F*](https://youtu.be/9zVsyNDYIW4), [7C](https://youtu.be/yXIN8Wd2NgE)
