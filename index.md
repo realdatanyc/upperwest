@@ -3,7 +3,7 @@
 ## Buildings
 
 53 West 72nd Street\
-[2F*](https://youtu.be/9zVsyNDYIW4),[7C](https://youtu.be/yXIN8Wd2NgE)
+[2F*](https://youtu.be/9zVsyNDYIW4), [7C](https://youtu.be/yXIN8Wd2NgE)
 
 160 West 73rd Street\
 [1C](https://youtu.be/qEVfoPhXmpk), [1J](https://youtu.be/mk6d2QIq0qM), [3K](https://youtu.be/-wFTAiYHR7M), [4J](https://youtu.be/MKkEWFJk8ig), [9E*](https://youtu.be/4rfOo5hgQic), [10K](https://youtu.be/tsu_lBKisk8), [12E](https://youtu.be/fJ2T2OF43eE)
