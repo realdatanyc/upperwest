@@ -32,6 +32,9 @@
 510 West End Avenue\
 [1](https://youtu.be/CJC9ya6IJHI)
 
+204 West 104th\
+[2B](https://youtu.be/Gf1f8lmFNbc)
+
 
 ## Laundromats
 **La Mode Cleaners Tailors**\
