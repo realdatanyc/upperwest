@@ -17,6 +17,9 @@
 53 West 72nd Street\
 [2F*](https://youtu.be/9zVsyNDYIW4),[7C](https://youtu.be/yXIN8Wd2NgE)
 
+510 West End Avenue\
+[1](https://youtu.be/CJC9ya6IJHI)
+
 
 ## Laundromats
 **La Mode Cleaners Tailors**\
