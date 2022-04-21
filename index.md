@@ -1,7 +1,10 @@
 ## Upper West Side 
 
-Last updated:  Friday, July 30, 2021\
+Last updated:  Friday, April 21, 2022\
 An asterisk ( * ) denotes currently available for rent
+
+## Events
+[Open Streets - May 15, 2022](https://patch.com/new-york/upper-west-side-nyc/major-upper-west-side-open-street-returning-soon-what-know)
 
 ## Buildings
 
